@@ -1,3 +1,3 @@
-*Things will get better with time*
+# Things will get better with time*
 **Believe**
 
